@@ -1,0 +1,2 @@
+# Diary
+For Commercial Use
